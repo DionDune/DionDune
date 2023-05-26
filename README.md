@@ -1,8 +1,8 @@
-- 👋 Hi, I’m 
-- 👀 I’m interested in JoinAdnf
-- 🌱 I’m currently learning Allot
-- 💞️ I’m looking to collaborate on Variouse
-- 📫 How to reach me. Dont
+- 👋 Hi, I’m YOUR WOST NIGHTMARE
+- 👀 I’m interested in YOU
+- 🌱 I’m currently learning Jujitsu Kaisen
+- 💞️ I’m looking to undermine the systemic and cultural barriers keeping the Proletariate under the ever present boot of the Bourgeoisie.
+- 📫 How to reach me. Screem "asdahgg08dgasoydg9081ghgidaksjd" 6 times in a southern portuguese accent
 
 <!---
 DionDune/DionDune is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
